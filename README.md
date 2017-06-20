@@ -1,7 +1,8 @@
 # Welcome to Drawtext Art
 
-##Summary
-We at Drawtext Art  take your privacy seriously. This privacy statement explains what data we collect,
+## Summary
+
+- We at Drawtext Art  take your privacy seriously. This privacy statement explains what data we collect,
 
 
 
