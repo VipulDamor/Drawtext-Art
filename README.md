@@ -1,4 +1,4 @@
-# Welcome to Drawtext Art Privacy Statement
+# Privacy Statement
 
 ## Summary
 
